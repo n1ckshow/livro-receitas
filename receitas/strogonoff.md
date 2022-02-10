@@ -19,8 +19,3 @@
 - Champignon
 
 - Batata palha e arroz branco para acompanhar
-
-  
-
-
-
